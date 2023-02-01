@@ -1,3 +1,0 @@
-# homework__inozemtsev_nikolay__main
-# homework__inozemtsev_nikolay__main
-# homework__inozemtsev_nikolay__main
